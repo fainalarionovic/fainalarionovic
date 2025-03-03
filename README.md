@@ -1,16 +1,43 @@
-## Hi there 👋
-
-<!--
-**fainalarionovic/fainalarionovic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- [Learn to Draw Cute Nobita: Full Body & Easy Tutorials!](https://www.youtube.com/playlist?list=PLEv-krsUOI8sXNzN6kyM6uiBscaZUrFqH)
+- [2025 CEO Movie Confessions: Love, Loss, & Power](https://www.youtube.com/playlist?list=PL9zEsHn4PfUTuzOTSR6Y9hyrsfd5yBRU_)
+- [Kung Fu Panda 4 UK DVD Openings & More!](https://www.youtube.com/playlist?list=PL8olEd8v_Jk93syPGnyynEr63RJFfNU6M)
+- [Doraemon: Nobita's Sky Utopia Movie - Full Exploration!](https://www.youtube.com/playlist?list=PLiuTPcUHXh97E2gSIY--tOYD3U8YM9JRz)
+- [2024 Movie Bull Run: Epic Adventures & Thrilling Races!](https://www.youtube.com/playlist?list=PLR0jfGJrfRoBBZY0K6aSMxVEmaKCHSQWm)
+- [Nobita's Birthday Extravaganza! 🎉 Doraemon Hindi Episodes](https://www.youtube.com/playlist?list=PLy4rYi3WF7zRH690kB6oKdtqEZ5VL7T2t)
+- [2024 Werewolf Movie Frenzy: Llobàs & Beyond!](https://www.youtube.com/playlist?list=PL8olEd8v_Jk8TlICwCNlGbJutPRvOkKL9)
+- [Doraemon Nobita & The Birth of Japan: Full Movie & More!](https://www.youtube.com/playlist?list=PLZvDK059EzD0Obn1IeNIW7G2mmYO-eaJa)
+- [Doraemon Nobita's Adventures: Underworld & Beyond!](https://www.youtube.com/playlist?list=PLNAHfEon8qo8sRnggpUKFNce3cKqMpgaF)
+- [Doraemon Nobita's Earth Symphony Full Movie Sub Indo: The Complete Playlist](https://www.youtube.com/playlist?list=PLQKMDm74kMfWFtYIPFRp5BjSD6q9_SZLG)
+- [Is Moana REALLY the Best Disney Movie? A Deep Dive!](https://www.youtube.com/playlist?list=PLBMJfGSnVjZP9z3cBVsQmWSqplzsymjZo)
+- [Den Sista Resan (2024): The Ultimate Guide to Filip & Fredrik's New Film](https://www.youtube.com/playlist?list=PLmkktcV0YjXqOGQxwAbnjAOhgxpmscdjA)
+- [Dive into the Darkness: 2011's Evil Things - Full Movie & Trailers](https://www.youtube.com/playlist?list=PL1YqYBs_-b75LiMoekdpgJj7_qQZyyo8d)
+- [Luna Negra 2024: All You Need to Know! Movie Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PLNAHfEon8qo_S8rBUUmHsvt8PhH7B7Mz-)
+- [Feed the Fish (2010) Movie: Trailers, Behind-the-Scenes & More!](https://www.youtube.com/playlist?list=PLPd8O084RbopspngwHbH9vHZOmA95EEor)
+- [Agak Laen (2024) Full Movie & Behind-the-Scenes: The Complete Playlist!](https://www.youtube.com/playlist?list=PLzAKmbe-jLYVbuBj_xvFszrjy5cfz9gfj)
+- [2024 Movie AWAKENER: Epic Action & Sci-Fi Trailers & More!](https://www.youtube.com/playlist?list=PLB_qbJ0Faj3maj3fbzvrKzAy1x_ISrkz_)
+- [Largo Winch 2024: Le Prix de l'Argent - Official Trailers & More!](https://www.youtube.com/playlist?list=PL1hsELdI-2bBE9kIA1-Jlsh1dI72ChKm5)
+- [Doraemon Nobita's Ichi Mera Dost: The Complete Movie Collection](https://www.youtube.com/playlist?list=PLC9R1rLFJvcbVhlPaX8joLB2jxqwNJXx2)
+- [Dive into Nostalgia: The Ultimate AquaTales & 2011 Movie Collection](https://www.youtube.com/playlist?list=PLUrVOq2axMbrGnOjIaRar3Er5eSKcxkQ4)
+- [FINCH (2021) Movie: Tom Hanks Post-Apocalyptic Adventure - Full Review, Trailers & More!](https://www.youtube.com/playlist?list=PL8RWO1B6fFxPQBJdJ7_8_fko1slakUZgz)
+- [Carmina Burana 2024: The Ultimate Playlist - O Fortuna & Beyond!](https://www.youtube.com/playlist?list=PLHH95_-3jHblG70qDjGoULu7KpwuUegiR)
+- [Best Nobita & Doraemon Wallpapers: 100+ HD & 4K Options!](https://www.youtube.com/playlist?list=PLSGqp-Z4fT93Y_Ah1Nd8jo51EOIfT2L84)
+- [The Seeding (2024) Movie: Trailers, Clips, Explainer Videos & More!](https://www.youtube.com/playlist?list=PLNAHfEon8qo8DqDr0HygPfNNELO7Ni5Gf)
+- [Jackie Chan's Panda Plan (2024): Official Trailers, Clips & Reviews](https://www.youtube.com/playlist?list=PLC9R1rLFJvcYBYlo6Dp1kqFyQG3qAgCbT)
+- [Justice League Animated Series: The Complete Guide](https://www.youtube.com/playlist?list=PLbMpUVoTF9xwwmkGGIzRBChjfA2Hcc8-3)
+- [Doraemon Nobita's Treasure Island & More Tamil Dubbed Movies!](https://www.youtube.com/playlist?list=PLS9eLZ7B4fw7Sd1p70m4xqzrgxjslfbDq)
+- [Non Chan Grows Up: Meeting Nobita & More Anime Transformations!](https://www.youtube.com/playlist?list=PLgI7NqQVE_jshLJslN5GZR6pclvJpoj69)
+- [Nobita's New Dinosaur Movie & More: Best Doraemon Films!](https://www.youtube.com/playlist?list=PL8olEd8v_Jk9QcXXmrMWZ_xI3q_udHTd7)
+- [Ultimate DC Animated Universe Watch Order: Justice League & Beyond!](https://www.youtube.com/playlist?list=PLuCJkpZYxxgKAx_mecP-rFwXpBl1a-vU0)
+- [Is Moana on Disney Plus Australia? 🇦🇺  Moana 2 Release Date & More!](https://www.youtube.com/playlist?list=PLnjUErQCRZUNmifzIOd95Nk-KKeVQ44dh)
+- [Nobita & Doraemon Urdu/Hindi Cartoons: Full Episodes!](https://www.youtube.com/playlist?list=PLy4rYi3WF7zRqlDhTREdIUX7nNaZGdjPX)
+- [CEO Drama & Romance Movies 2024: Love, Power, & Revenge!](https://www.youtube.com/playlist?list=PLiuTPcUHXh96W5fsbPOGD_uPL_blLyHyY)
+- [Lord of the Rings: War of the Rohirrim - Digital Release Date & More!](https://www.youtube.com/playlist?list=PLQP13DWLUxtXEZdJTiPlKbkrqGLFwtfar)
+- [2025 Movie: 28 Years Later - Official Trailers & Everything You Need To Know!](https://www.youtube.com/playlist?list=PLEoB85L0xBPTbC5maphwB2BfiYekQZx0w)
+- [Doraemon's Underworld Adventure: Best Hindi Movies!](https://www.youtube.com/playlist?list=PLy4rYi3WF7zQLXKaowwmTTEu-Q3rojAH_)
+- [Kill Em All 2 (2024) Movie: Official Trailers, Clips & Reviews!](https://www.youtube.com/playlist?list=PLXoOo479pQw519Xudz1U2vvto5wulL91i)
+- [Nobita & Shizuka Drawing Tutorials: Easy Step-by-Step Guides](https://www.youtube.com/playlist?list=PLgI7NqQVE_juX4dhm2KPii5N-ayLkS-_n)
+- [Kill Your Lover (2024) Movie: Trailers, Reviews & More!](https://www.youtube.com/playlist?list=PLNAHfEon8qo_PrODP5-jVs13cnDgE0bQU)
+- [Kneecap 2024: The Movie - Official Trailers, Interviews & More!](https://www.youtube.com/playlist?list=PLEoB85L0xBPSK-GPuATUOGPCJ7-NzzIVX)
+- [Epic Movie Battles & Thrilling Ridges: A Cinematic Journey](https://www.youtube.com/playlist?list=PLzAKmbe-jLYVrbElm3eL3hRGq1ye_V2YD)
+- [Film Nobita Doraemon Full Movie Bahasa Indonesia: Petualangan Seru!](https://www.youtube.com/playlist?list=PLzAKmbe-jLYXN0i6bqw6AVaOQIwyo8Z-G)
+- [I Don't Know How She Does It (2011) Movie: Full Trailers, Clips & More!](https://www.youtube.com/playlist?list=PLiuTPcUHXh97lkOf41iN9VBQXxkMcKDn-)
